@@ -1,5 +1,4 @@
 # Resume Maker Support
-![logo](/logo.png)
 
 Contact us at harshtejwani24@gmail.com
 
