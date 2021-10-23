@@ -1,4 +1,4 @@
-## Contact us at harshtejwani24@gmail.com
+**Contact us at** harshtejwani24@gmail.com
 
 Read our privacy policy below:
 
